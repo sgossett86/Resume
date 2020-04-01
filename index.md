@@ -1,4 +1,4 @@
-# Scott-Gossett
+# Scott Gossett
 804.665.4606  
 6266 Deerhaven Ln.  
 Cincinnati Ohio, 45140  
