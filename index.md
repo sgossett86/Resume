@@ -1,3 +1,5 @@
+![THE MAN](https://media-exp1.licdn.com/dms/image/C4E03AQGhdmL0-pphKw/profile-displayphoto-shrink_200_200/0?e=1591228800&v=beta&t=dXRGhoVFx7EuW7RtlUIdGTRP8Wah8vF6Mn9d856Fm7I)
+
 # Scott Gossett
 804.665.4606  
 6266 Deerhaven Ln.  
